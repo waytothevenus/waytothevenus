@@ -6,7 +6,7 @@
 
 💞️ I'm always open to collaborating on exciting projects that involve cutting-edge web technologies and aim to drive business success through innovative solutions.
 
-📫 You can reach me at @balancotton (Telegram), +1 (681) 200-1441 (WhatsApp), waytothevenus (Discord)   to discuss potential collaborations or projects.
+📫 You can reach me at @faryusof (Telegram), +1 (331)-200-0392 (WhatsApp),  zerinnen._(Discord), +1 (409)-293-3395    to discuss potential collaborations or projects.
 
 😄 Pronouns: He/Him
 
